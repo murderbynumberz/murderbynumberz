@@ -12,6 +12,5 @@
 </div>
 <br />
 <div align="center"> 
-[ᴀᴛᴀ](https://horrorhusbands.atabook.org/) 🪽 [ʀᴇɴᴛʀʏ](https://rentry.co/horrorhusbandss) 🪽 [ɢᴜɴꜱ](https://guns.lol/quietmoment)
   
 <img src="https://media.discordapp.net/attachments/1378973784433754177/1535181508531327047/Untitled236_20260807020230.png?ex=6a76d4b1&amp;is=6a758331&amp;hm=06242c6da1848d324c5c70b365573438cccd664581a4d439852bcc576692657c&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1024&amp;height=684" alt="Image"/>
