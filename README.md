@@ -3,7 +3,7 @@
 <div align="center">
   
 ꒰১ ໒꒱
-<p align="center"> <img width="100" height="25" src="https://komarev.com/ghpvc/?username=parasiticdesires&label=deaths%20&color=7d9d90&style=flat" alt="parasiticdesires" /p
+<p align="center"> <img width="100" height="25" src="https://komarev.com/ghpvc/?username=horrorhusbands&label=deaths%20&color=7d9d90&style=flat" alt="horrorhusbands" /p
 
 </div>
 <div align="center">
